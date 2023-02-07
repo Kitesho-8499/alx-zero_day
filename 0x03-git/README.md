@@ -1,1 +1,1 @@
-Kitesho love playing guitar.
+Kitesho love playing guitar skilfully.
